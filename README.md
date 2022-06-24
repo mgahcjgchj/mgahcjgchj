@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Hacking 
 - 🌱 I’m currently learning ...IIT-JEE
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...mithlesh1668jnvaurangabad@gmail.com
+- 📫 How to reach me ...mykmyth@outlook.com
 
 <!---
 mgahcjgchj/mgahcjgchj is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
